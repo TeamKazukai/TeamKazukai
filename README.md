@@ -9,7 +9,7 @@
 [<img src="https://github.com/AnonymousX1025/AnonymousX1025/blob/master/resources/hr.gif"/>](https://github.com/TeamKazukai/TeamKazukai)
 
 <p align="center">
-<img src="https://te.legra.ph/file/9f9f9e906aa1dfdef2e29.jpg">
+<img src="https://telegra.ph/file/839962f8b5a8ff3871160.jpg">
 </p>
 
 [<img src="https://raw.githubusercontent.com/AnonymousX1025/AnonymousX1025/master/resources/hr.gif"/>](https://github.com/TeamKazukai/TeamKazukai)
